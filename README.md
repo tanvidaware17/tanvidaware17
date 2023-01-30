@@ -12,7 +12,7 @@
 
 - ⚡ Fun fact **I want to be nice, but everyone annoys me**
 
-- 🥅 2022 Goals **Contribute more to Open Source projects**
+- 🥅 2023 Goals **Contribute more to Open Source projects**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
